@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @GothicBunny
+- 👋 Hi, I’m Bunnzer or jay
 - 👀 I’m interested in Games,guns,anime,rabbits
 - 🌱 I’m currently learning Roblox stuido,unreal
-- 💞️ I’m looking to collaborate on roblox
-- 📫 How to reach me discord GothicBunny#9914
+- 📫 How to reach me discord gothicbunny
 
 <!---
 GothicBunny69420/GothicBunny69420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
